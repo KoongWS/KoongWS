@@ -1,6 +1,6 @@
-#the Great Resignation Era
-##the Great Self-Awakening Route
-###the Great Buddha-Dhamma Path
+# the Great Resignation Era
+## the Great Self-Awakening Route
+### the Great Buddha-Dhamma Path
 
 - 👋 Hi, I’m @KoongWS
 - 👀 I’m interested in jogging,hiking, travelling, sight-seeing.
